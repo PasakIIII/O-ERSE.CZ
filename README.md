@@ -1,1 +1,1 @@
-# O-ERSE.CZ
+# OZERSE.CZ
